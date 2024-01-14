@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi! I'm a little new to this site, but I'm sure I'll figure it out eventually... pronouns are he/him.
 
 <!--
 **saucylittleminx69/saucylittleminx69** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
